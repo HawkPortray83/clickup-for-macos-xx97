@@ -1,4 +1,4 @@
-#  
+#  ClickUp for macOS automatic Extension: quick search & offline access is the best ClickUp for macOS extension, featuring quick search and offline access. Safe, efficient, and
 
 
 
